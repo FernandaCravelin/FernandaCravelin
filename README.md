@@ -1,3 +1,1 @@
-Oi,sou uma aluna!
-15y
-pitanga-pr 
+Opa tudo bom?Só estou aqui por curiosidade mesmo kkkkk
